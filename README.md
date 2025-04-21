@@ -1,4 +1,4 @@
-## Hello there ~ ⭐
+## Hello ~ ⭐
 
 - 🦭 I'm a third-year Data Science major and Business Administration minor at Chapman University! 🍊
 - 🌱 My professional goal is to work as an IT project manager - the perfect intersection for both of my career paths.
